@@ -16,9 +16,9 @@ Ever wanted to work in the field of international espionage? Working with some o
 ***
 
 
-### [N/A](E)
+### [SS Applications](https://goo.gl/forms/UPZUC2OCBIn8GhmF2)
 
-N/A
+Ever wanted to protect POTUS and VPOTUS? If yes then we got the job for you. By applying for the Secret Service you can protect only the highest in the USA. If you pass the director himself will contact you through discord with your results. Click the title to fill out the application!
 
 ***
    
